@@ -45,13 +45,9 @@ Writer's have to write articles for the following categorized content given belo
 
 The applicant will be paid 500 Taka for each 1000+ word articles consistently. He or she will be paid on article basis. That means, when a writer send an article, we will review it within 12 hours. If the writer’s article fulfilled our requirement then we will send payment to writer’s bKash number within next 48 hours.
 
-The applicant are requested to send an sample article to [this email](mailto:info.rahiq@gmail.com) in order to prove their content writing skills.
-
-#### Contact for any queries
-
-WhatsApp Number: **+8801726-860350**
+The applicant are requested to send an sample article to [this email](mailto:rahiqscare@gmail.com) in order to prove their content writing skills.
 
 Thankfully,<br>
 Sabber Ahmad Rahiq<br>
 Founder<br>
-[Airy Passion .Com](https://www.airypassion.com)
+[Rahiq's Note](https://rahiq.xyz)
