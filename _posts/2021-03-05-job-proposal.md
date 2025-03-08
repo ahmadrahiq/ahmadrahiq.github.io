@@ -1,10 +1,10 @@
 ---
 title: Need an Expert Content Writer For Long Term Basis
-description: I'm looking for an expert English content writer to write content on regular basis for my site airypassion.com
+description: I'm looking for an expert English content writer to write content on regular basis for my site techadvice.cloud
 ---
 ![Job Post](/assets/images/job-post.png)
 
-I'm looking for an expert English content writer to write content on regular basis for my site airypassion.com. Initially, I want to outsource 30 articles (1k+ words each) within next 2 month.
+I'm looking for an expert English content writer to write content on regular basis for my site techadvice.cloud. Initially, I want to outsource 30 articles (1k+ words each) within next 2 month.
 
 ## Here is My Requirements
 <br>
